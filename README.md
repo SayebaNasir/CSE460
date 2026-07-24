@@ -6,3 +6,6 @@ Youtube Playlists:
 2. https://www.youtube.com/playlist?list=PL_y1WhhK6ISv26IhGFaGYQYlP-uij3nEf
 3. https://www.youtube.com/playlist?list=PL_y1WhhK6ISuiGq789N2fdAKNKeINpHha
 4. https://www.youtube.com/playlist?list=PLn12JjJn-4YkQy8uyNnkRrt4SiE4SvZDX
+
+MID PREP BY ZIZE sir (Summer'26):
+https://youtu.be/-FNjUAknFYo
